@@ -10,7 +10,7 @@
 
 📫 How to reach me **vercelesgabriel@gmail.com**
 
-📄 Resume [https://drive.google.com/file/d/17Xg8sdHd6OE0JHa8VbKC6DbFsPmebJYH/view?usp=sharing](https://drive.google.com/file/d/17Xg8sdHd6OE0JHa8VbKC6DbFsPmebJYH/view?usp=sharing)
+📄 Resume [https://drive.google.com/file/d/17Xg8sdHd6OE0JHa8VbKC6DbFsPmebJYH/view?usp=sharing](https://drive.google.com/file/d/1l-9KjPBJT5x4iavEim4QVXVxc_10Z3_o/view?usp=drive_link)
 
 </div>
 
